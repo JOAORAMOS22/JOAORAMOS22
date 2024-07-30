@@ -1,1 +1,1 @@
-## Boas vindas ao meu perfil 👋
+## Bem vindo ao meu perfil 👋
